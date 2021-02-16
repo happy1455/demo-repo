@@ -1,4 +1,4 @@
 # HEADER
 
 Anand Gupta!!!
-MNIT, Jaipur
+MNIT, Rajasthan
